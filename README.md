@@ -1,9 +1,0 @@
-This is Retro Bowl version me and my partner built
-
-
-©2021 thaglogngganng, 3kh0,deprexx00, imgbot All Rights Reserved ® 
-
-USING THIS GAME MEANS YOU AGREE NOT TO COPY THE GAME CODE WITHOUT OWNERS PERMESSION NOR CLAIM THAT YOU MADE THIS GAME. THIS WEBSITE NAME OR ANY OF THE OWNERS NAME OR USERNAME..
-MAY NOT BE COPIED!
-
- 
